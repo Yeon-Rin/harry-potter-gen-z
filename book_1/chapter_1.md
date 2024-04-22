@@ -3,15 +3,15 @@
 
 Mr. and Mrs. Dursley, of number four, Privet Drive, liked flexing that they were very basic, thank u. Tbh they were the last people you'd think would be sus, because they were all fax no printer.
 
-Mr. Dursley was adulting at a firm called Grunnings, which made drills.
+Mr. Dursley was adulting at a firm called Grunnings, which made drills (lame).
 
-He was a dummy thiccc (w/ three Cs) man with hardly any neck, although he had an absolute unit of a mustache. Mrs. Dursley was a total Karen with zero chill and had hella neck, which came in very useful when she was stalking her neighbours and not minding her own.
+He was a dummy thiccc (w/ three Cs) man with hardly any neck, although he had an absolute unit of a mustache. Mrs. Dursley was a total Karen with zero chill and had hella neck, which came in very useful when she was stalking her neighbours and not minding her own life (which sucked).
 
 The Dursleys had a future incel of a son named Dudley who they thought was the main character. The Dursleys were mostly thriving, but they also had lowkey tea which didn't pass the vibe check and their greatest fear was to get called out and cancelled. They were girlbossing too close to the sun and didn't think their clout could bounce back if their fam, the Potters, were revealed. Milf Lily Potter was Mrs. Dursley's sis, but Mrs. D had gone ghost; irl (no cap) Mrs. D fronted she didn't have a sis, because Lil and her deadbeat mans were straight up cringe. If the neighbors ever peeped the Potters, it'd be a big yikes. Lowkey the Dursleys knew the Potters had their own crotch goblin, too, but they'd never peeped. This bb was fr a solid reason 2 keep the in-laws yote; they didn't want Dudley mixing with a gross being like that.
 
 When Mr. and Mrs. Dursley woke up on the dull, gray (fight me) Tuesday our lore opens, the cloudy overlay didnt vibe like strange and mysterious things would be happening all over the country. Mr. Dursley hummed as he picked out his most boring tie for work, and Mrs. Dursley spilled the tea as she was tryna put a screaming Dudley into his heckin high chair.
 
-None of them noticed a chonky, tawny owl flutter past the window.
+None of them noticed a chonky, tawny owl flutter past the window, as they were too "busy".
 
 At half past eight, the chonklord that is Mr. Dursley picked up his briefcase, pecked Mrs. Dursley on the cheek, and tried to kiss Dudley goodbye but missed, because Dudley was losing it and yeeted his cereal at the walls. "Little Lad" chortled Mr. Dursley as he left the house. He got into his whip and backed out into the driveway of their basic asf house.
 
